@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-11 22:49 IR
+- 🎬 [Ashnikko_-_Chichinya_(Official_Visualiser).mp4](https://github.com/imnormanandyou/sandbox/raw/main/dl/Ashnikko_-_Chichinya_%28Official_Visualiser%29.mp4) `11.7MB`
+
+---
+
+
 ### 📅 2026-05-11 22:46 IR
 - 🎬 [BLACKPINK_-_‘뛰어(JUMP)’_M_V.mp4](https://github.com/imnormanandyou/sandbox/raw/main/dl/BLACKPINK_-_%E2%80%98%EB%9B%B0%EC%96%B4%28JUMP%29%E2%80%99_M_V.mp4) `26.5MB`
 
