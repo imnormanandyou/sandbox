@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 12:08 IR
+- 🎬 [Worlds_2022_Finals_Opening_Ceremony_Presented_by_Mastercard_ft._Lil_Nas_X,_Jackson_Wang_&_Edda_Hayes.mp4](https://github.com/imnormanandyou/sandbox/raw/main/dl/Worlds_2022_Finals_Opening_Ceremony_Presented_by_Mastercard_ft._Lil_Nas_X%2C_Jackson_Wang_%26_Edda_Hayes.mp4) `83.7MB`
+
+---
+
+
 ### 📅 2026-05-12 12:05 IR
 - 🗜️ [Opening_Ceremony_Presented_by_Mastercard___Worlds_2020_Finals.7z.001](https://github.com/imnormanandyou/sandbox/raw/main/dl/Opening_Ceremony_Presented_by_Mastercard___Worlds_2020_Finals.7z.001) `95.0MB`
 
